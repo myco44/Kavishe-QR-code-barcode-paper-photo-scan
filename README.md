@@ -1,0 +1,1 @@
+# Kavishe-QR-code-barcode-paper-photo-scan
